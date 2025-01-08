@@ -1,3 +1,3 @@
 my own family forsaken me
 
-![me ena](https://files.catbox.moe/mxwu6d.gif)
+![](https://files.catbox.moe/j9rvwc.gif)
